@@ -1,5 +1,8 @@
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=foreverpondering&color=orange)
 
+  ***Ai sketch gift by @Echo***
+      ![](https://files.catbox.moe/yt6p1h.png) ![](https://files.catbox.moe/ckznnp.png)
+
    ***OMG CHII TYSM... (@promiseeverlasting)***
 ![](https://files.catbox.moe/e3jd2r.png)
 
